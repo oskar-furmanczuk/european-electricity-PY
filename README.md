@@ -1,1 +1,1 @@
-# project_ALFA
+# project dropped due to lack of a hypothesis
